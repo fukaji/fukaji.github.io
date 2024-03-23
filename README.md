@@ -1,0 +1,1 @@
+# fukaji.github.io
